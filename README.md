@@ -1,1 +1,0 @@
-# AFYAN-BOT
